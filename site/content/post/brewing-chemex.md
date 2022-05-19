@@ -1,26 +1,49 @@
 ---
-title: A beginners’ guide to brewing with Chemex
-date: 2017-01-04T15:04:10.000Z
+title: May News from Southside Park Neighborhood Association
+date: 2022-05-11T01:12:00.000Z
 description: >-
-  Brewing with a Chemex probably seems like a complicated, time-consuming
-  ordeal, but once you get used to the process, it becomes a soothing ritual
-  that's worth the effort every time.
-image: /img/blog-chemex.jpg
+  Dear Neighbors,
+
+
+  We met via Zoom on May 9th - Meeting minutes are attached. Here are the topics that were discussed. We hope to see you at the next meeting June 13th at 6:30 and **consider joining** (paypal accepted).
+
+
+  * **5th street conversion** to a 2-way street should be underway by 2023.
+
+  * **Pool opens June 17th** - however the opening could be delayed if schools remain open later due to school missed during the teachers strike.
+
+  * **Caltrans will begin moving homeless people** off of their property starting week of May 9th.
+
+  * **The Farmer’s Market** is still planning to return once Caltrans work has been completed, no updated timeline.
+
+  * Southside Park Clubhouse has not reopened (unlike other centers) due to lack of staff. It has several teen events and camps planned.
+image: ""
 ---
+**SPNA IS ALSO WORKING ON...**
 
-This [week](/wdwdw) we’ll **take** a look at all the steps required to make astonishing coffee with a Chemex at home. The Chemex Coffeemaker is a manual, pour-over style glass-container coffeemaker that Peter Schlumbohm invented in 1941, and which continues to be manufactured by the Chemex Corporation in Chicopee, Massachusetts\*.
+**Event Monitoring in our Park**
 
-In 1958, designers at the [Illinois Institute of Technology](https://www.spacefarm.digital) said that the Chemex Coffeemaker is *"one of the best-designed products of modern times"*, and so is included in the collection of the Museum of Modern Art in New York City.
+With summer coming we are seeing lots of festivals and events in Southside Park. We continue to monitor these events for compliance with the rules the City expects of event organizers. We continue to see that rules meant to protect the park and the safety of people in the park are not being followed. Next we are working with our council member's office to see how things can be improved.
 
-## The little secrets of Chemex brewing
+**Park & Playground**
 
-The Chemex Coffeemaker consists of an hourglass-shaped glass flask with a conical funnel-like neck (rather than the cylindrical neck of an Erlenmeyer flask) and uses proprietary filters, made of bonded paper (thicker-gauge paper than the standard paper filters for a drip-method coffeemaker) that removes most of the coffee oils, brewing coffee with a taste that is different than coffee brewed in other coffee-making systems; also, the thicker paper of the Chemex coffee filters may assist in removing cafestol, a cholesterol-containing compound found in coffee oils. Here’s three important tips newbies forget about:
+A big success this past year has been the total **revitalization of the playground** at Southside Park, spearheaded by board member Marc Laver. The wheelchair accessible We-Go-Round installed last year has now been joined by a music making installation. Both are heavily used and we've seen a huge uptick in park visotors! The cushioned playground surfaces, which were getting pretty worn, have been replaced and look great. And the restrooms at the playground have been replaced and should be open soon.
 
-1. Always buy dedicated Chemex filters.
-2. Use a scale, don’t try to eyeball it.
-3. Never skip preheating the glass.
-4. Timing is key, don’t forget the clock.
+Our neighborhood continues to host **monthly park cleanups** (see Facebook posting for details next one is in June) and watering tree events.
 
-The most visually distinctive feature of the Chemex is the heatproof wooden collar around the neck, allowing it to be handled and poured when full of hot water. This is turned, then split in two to allow it to fit around the glass neck. The two pieces are held loosely in place by a tied leather thong. The pieces are not tied tightly and can still move slightly, retained by the shape of the conical glass.
+The tennis/pickleball courts are scheduled to get crack repairs and repainting in the near future-more details to come. An **active pickleball community** has been meeting 3 times a week (see [playtimescheduler.com](http://playtimescheduler.com/) for times).
 
-For a design piece that became popular post-war at a time of Modernism and precision manufacture, this juxtaposition of natural wood and the organic nature of a hand-tied knot with the laboratory nature of glassware was a distinctive feature of its appearance.
+**Building and Development in Southside Park**
+
+Sadly, we have lost Insight Coffee. As part of the new **72-unit apartment** building (8th and T) part of the existing building has been demolished with 3 walls left standing. Last fall, the SPNA appealed the project because there will be very limited resident parking, but the City denied our appeal. We can expect to see parking become more of a problem for residents as well as Sunday church goers at the Presbytarian Church with the loss of the insight lot.
+
+You may have noticed that the **office building at 3rd and S** has been torn down in preparation for a 5-story apartment building. The permit states 187 apartments are planned, with co/work space, also with limited parking. 
+
+On **S street east of Old Ironsides** there are plans to tear down the complex of small buildings and build a 4-story apartment building with 23 units. 
+
+Finally, 2 different developers are in the initial stages of planning a 8-story apartment buildings on the north side of S Street, between 4th and 5th Streets and between 9th and 10 Streets.
+
+\-- \
+**Gordon Lane & Kristin Kazamaki**
+
+SPNA Board President & Vice President
