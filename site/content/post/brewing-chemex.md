@@ -8,9 +8,9 @@ description: >-
   We met via Zoom on May 9th - Meeting minutes are attached. Here are the topics that were discussed. We hope to see you at the next meeting June 13th at 6:30 and **consider joining** (paypal accepted).
 
 
-  * **5th street conversion** to a 2-way street should be underway by 2023.
+  5th street conversion to a 2-way street should be underway by 2023.
 
-  * **Pool opens June 17th** - however the opening could be delayed if schools remain open later due to school missed during the teachers strike.
+  Pool opens June 17th - however the opening could be delayed if schools remain open later due to school missed during the teachers strike.
 
   * **Caltrans will begin moving homeless people** off of their property starting week of May 9th.
 
